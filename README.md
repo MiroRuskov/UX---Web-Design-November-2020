@@ -1,6 +1,6 @@
 ![SoftUni-Illustrator-February-2021](https://github.com/MiroRuskov/UX---Web-Design-November-2020/blob/main/_README/UX%26Web.jpg)
 
-![SoftUni-Illustrator-February-2021](https://github.com/MiroRuskov/SoftUni-Illustrator-February-2021/blob/main/_README/Illustrator-Certificate.jpg)
+![SoftUni-Illustrator-February-2021](https://github.com/MiroRuskov/UX---Web-Design-November-2020/blob/main/_README/UX%26Wev-Certificate.jpg)
 
 ---
 
